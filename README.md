@@ -1,0 +1,1 @@
+# borra_archv_temp0
